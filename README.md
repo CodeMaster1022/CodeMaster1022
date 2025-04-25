@@ -1,5 +1,2 @@
-Thinking long term can paralyze you into delaying action.
+![image](https://github.com/user-attachments/assets/37413ffb-d751-43f2-a94f-4a763d3c6237)
 
-Yet ignoring it entirely traps you in chasing instant gratification.
-
-Balancing the two, knowing time exists but isn’t endless, is a tightrope walk.
